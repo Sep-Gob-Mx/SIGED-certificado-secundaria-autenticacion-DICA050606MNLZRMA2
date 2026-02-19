@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-DICA050606MNLZRMA2
+DICA050606MNLZRMA2
